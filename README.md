@@ -1,2 +1,1 @@
-# LIEN-KET
-@github subscribe [gdnngdtxcaungang]/[tbachtv3000]
+https://gdnngdtxcaungang-my.sharepoint.com/:v:/g/personal/tbachtv3000_gdnngdtxcaungang_onmicrosoft_com/Ee6RVJX3wslFlfzZvc4uQmgBivUyzmaH0ByZYzU37PrWuQ?e=x3VnhO
